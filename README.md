@@ -1,1 +1,0 @@
-# Amirgame3.ir
